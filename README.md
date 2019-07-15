@@ -2,7 +2,7 @@
 
 ## Phase 0: Preparation (optional)
 
-Consider what you'd like to do, acccomplish, or learn at the meeting. This might simply be to listen in on whatever seems interesting. Or perhaps you have a question.
+Consider whether there is something you'd like to discuss, describe, or learn about at the meeting. This might simply be to listen in on whatever seems interesting. Or perhaps you have a question.
 
 ## Phase 1: Present Discussion Options
 
