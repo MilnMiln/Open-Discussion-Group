@@ -4,7 +4,7 @@
 
 Ask a question, propose an answer, or propose changes to the rules. Got a project proposal? If multiple people seem interested in participating in multiple proposed discussions, propose a schedule.
 
-Consider giving everyone a chance to participate here, to maximize good choices of what to do next. 
+Consider giving everyone a chance to participate here, for more and better opportunites to choose from. 
 
 ## Phase 2: Breakout Discussions
 
