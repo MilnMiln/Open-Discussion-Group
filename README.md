@@ -10,6 +10,6 @@ Consider giving everyone a chance to participate here, for more and better oppor
 
 Go participate in whatever proposed activity most appeals to you. In pairs, or in groups. 
 
-Recommendation: Let everyone follow their own interests, while you follow yours.
+`Recommendation: Let everyone follow their own interests, while you follow yours.`
 
-Suggestion: If proposing a schedule, consider adding in checkpoints. Consider scheduling a periodic request for new proposals or questions. Maybe every 15 or 30 minutes.
+`Suggestion: If proposing a schedule, consider adding in checkpoints. Consider scheduling a periodic request for new proposals or questions. Maybe every 15 or 30 minutes.`
