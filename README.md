@@ -10,6 +10,6 @@ Consider giving everyone a chance to participate here, for more and better oppor
 
 Go participate in whatever proposed activity most appeals to you. In pairs, or in groups. 
 
-## Recommendations ans Suggestions: 
+## Recommendations and Suggestions: 
 
 Let everyone follow their own interests, while you follow yours.
