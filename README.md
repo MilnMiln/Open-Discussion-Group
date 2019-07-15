@@ -8,7 +8,7 @@ Consider what you'd like to do, acccomplish, or learn at the meeting. This might
 
 Ask a question, propose an answer, or propose changes to the rules. Got a project proposal? If multiple people seem interested in participating in multiple proposed discussions, propose a schedule.
 
-Consider giving everyone a chance to participate here, for more and better opportunites to choose from. 
+Consider giving everyone a chance to participate so that everyone gets more and better opportunites to choose from. 
 
 ## Phase 2: Breakout Discussions
 
